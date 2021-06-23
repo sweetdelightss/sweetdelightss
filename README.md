@@ -7,4 +7,4 @@
 - 💬 Ask me about anything!
 - 📫 How to reach me: @sweetdelightss on most social media platforms
 - 😄 Pronouns: Her/She
-- ⚡ Fun fact: I like anime and conventions
+- ⚡ Fun fact: I like anime and going to conventions
