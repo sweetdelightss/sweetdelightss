@@ -1,5 +1,3 @@
-https://github.com/sweetdelightss/sweetdelightss/blob/main/Github%20Header%20Sweet%20Header%20(1).png?raw=true
-
 [![Stacey's GitHub Banner](https://github.com/sweetdelightss/sweetdelightss/blob/main/Github%20Header%20Sweet%20Header%20(1).png?raw=true)(https://linkedin.com/in/staceylokey)
 
 <!--
