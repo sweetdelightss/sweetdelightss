@@ -1,4 +1,4 @@
-![Stacey's GitHub Banner](https://github.com/sweetdelightss/sweetdelightss/blob/main/Github_Banner.png?raw=true
+![Stacey's GitHub Banner](https://github.com/sweetdelightss/sweetdelightss/blob/main/Github_Banner.png?raw=true)
 
 
 - 🔭 I’m currently working on getting my Sec+ Certification and AWS Certs
